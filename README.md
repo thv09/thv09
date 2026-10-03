@@ -16,7 +16,7 @@
 ### 📫 Let's Connect With Me:
 * 📸 **Instagram:** [@thv09._](https://instagram.com/thv09._)
 * 🌐 **Zyo:** [trnnz.08](https://zyo.lol/trnnz.08)
-* 💬 **Discord:** [Add me on Discord](https://discord.com/users/354134840419024896)
+* 💬 **Discord:** [Add me on Discord](https://discord.com/users/1470303795064864861)
 
 ---
 
